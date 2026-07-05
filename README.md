@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sammedpatil45
-- 👀 I’m interested in Photography
-- 🌱 I’m currently learning Photography & Videography
+- I run EXIM company
+- 🌱 I’m currently working on healthcare solution
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Sammedpa1998@gmail.com
 
